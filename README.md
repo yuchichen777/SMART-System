@@ -12,3 +12,17 @@ Attainable — Goals should be attainable, or possible to reach. A goal is attai
 Relevant — A relevant goal is one that really matters to you and is important. Is it worth the energy? Is this the right time? Does your career goal fit into your life goals and future plans? Is there anything you will need to reach your goal that you don't currently have?
 
 Timely — A goal should have a clear timeline. This will help keep you focused. Decide when do you want to start working on your goal. Then ask yourself: When should I complete each step?
+
+
+Here are a few tips for reaching your SMART goal:
+Make A List
+Write down your goal. Then write down the steps you will take to get there. This will help you to remember and accomplish each step. Put your list where you will see it.
+
+Set Deadlines
+Give yourself a date to complete your goals. Set a deadline for each step. Write down the date when you finish each step.
+
+Reward Yourself
+Working toward goals is hard. Think of small rewards to give yourself when you complete each step. The rewards will help you stay motivated.
+
+Have A Goal Partner
+Find someone to help you. The person can be a friend, co-worker, job coach or anyone else. Discuss your goals together, and meet up when you complete each step. If possible, do the same for your partner
